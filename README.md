@@ -1,3 +1,1 @@
 diamondduo & helperduo awww
-<p> no i dont ship mob x twixxel ok ? <br>
-<p> holy user-claiming tux. ikr gng 💔 <br>
